@@ -1,2 +1,0 @@
-# triopekokbots026
-Anuanumu
